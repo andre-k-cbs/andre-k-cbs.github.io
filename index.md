@@ -7,3 +7,7 @@ Sean Connerys Vater Joseph Connery war Fernfahrer und stammte aus dem irischen C
 * Die blinde Spinne
 * Der längste Filme
 * James Bond 007
+
+Zitat:
+
+> Die meisten Menschen denken hauptsächlich über das nach, was die anderen Menschen über sie denken.
