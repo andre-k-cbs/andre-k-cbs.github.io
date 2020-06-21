@@ -11,3 +11,5 @@ Sean Connerys Vater Joseph Connery war Fernfahrer und stammte aus dem irischen C
 Zitat:
 
 > Die meisten Menschen denken hauptsächlich über das nach, was die anderen Menschen über sie denken.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/de/Sean_Connery%2C_Bestanddeelnr_932-7859.jpg/400px-Sean_Connery%2C_Bestanddeelnr_932-7859.jpg"/>
